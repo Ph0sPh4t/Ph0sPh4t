@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ph0sPh4t
+- 👀 I’m interested in Python and SecurityThings
+- 🌱 I’m currently learning not enough. 
+- 💞️ 
+- 📫 This is Ph0sPh4ts Mailbox. I am not reachable right now. Please leave a message after the Beep. Thank you. 
